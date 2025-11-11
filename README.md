@@ -38,7 +38,7 @@
 ###
 
 <div align="center">
-  <img height="200" src="https://tenor.com/pt-BR/view/mewing-gif-1225254654061717180/>
+  <img height="200" src="https://c.tenor.com/EQD6nb6-JrwAAAAC/tenor.gif"/>
 </div>
 
 ###
